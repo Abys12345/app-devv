@@ -11,4 +11,4 @@ A Christmas classic where 8-year-old Kevin McCallister (Macaulay Culkin) is left
 - Timeless Christmas vibes  
 - Macaulay Culkin's iconic role  
 
-## 🔗 [Watch Trailer](https://www.youtube.com/watch?v=jEDaVHmw7r4)  
+## 🔗 [Watch Trailer](https://www.youtube.com/watch?v=jEDaVHmw7r4) 
